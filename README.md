@@ -1,1 +1,1 @@
-# Le dernier dresseur d'escargot au monde
+# Le dernier des dresseurs d'escargot
