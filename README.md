@@ -15,3 +15,4 @@ Pourquoi reporter à demain ce qui peut être fait par un autre.
 C'est vrai demain est un autre jour , ###jour , ##jour , #jour ...
 
 MIKE WAS THERE	
+maybe *list with °bullets will change this _text_ 
