@@ -23,3 +23,14 @@ The Invincible Iron Man
 =======================
 
 *HODOR* **HODOR** HODOR!
+
+# Qui suis-je?
+Je suis:
+ * **bleu** 
+ *avec des petits points rouge 
+ *et des poils dessus
+J'ai: 
+ *une forme bizarroides 
+ *une grande gueule  
+
+Je suis, je suis... http://lolheaven.com/i-have-no-idea-what-i-am-doing-2/
