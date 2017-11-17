@@ -13,3 +13,7 @@ Elles s'affrontent pour la suprématie de la planète compote. Personne ne sait 
 Pourquoi reporter à demain ce qui peut être fait par un autre.
 
 C'est vrai demain est un autre jour , ###jour , ##jour , #jour ...
+
+Quand un verre est plein on le vide. Et quand il est vide on le plaint.
+On boira du lait quand les vaches mangeront du raisin.
+Conduire ou choisir, il faut boire.
