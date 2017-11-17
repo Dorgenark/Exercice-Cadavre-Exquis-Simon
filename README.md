@@ -38,3 +38,8 @@ J'ai:
 
 Je suis, je suis... http://lolheaven.com/i-have-no-idea-what-i-am-doing-2/
 >>>>>>> d07d639026f3a0edd679cf9981cf229ab864ec0b
+
+Premier arrêt, le train ne démarre pas. Y a-t-il un Docteur?  
+Depuis quand les Docteurs prennent le train et laissent leur tracteur!  
+Ouf, je change de train et arrive à l'heure, j'ai eu vraiment peur.  
+
