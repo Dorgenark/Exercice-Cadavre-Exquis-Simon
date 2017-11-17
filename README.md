@@ -38,3 +38,14 @@ J'ai:
 
 Je suis, je suis... http://lolheaven.com/i-have-no-idea-what-i-am-doing-2/
 >>>>>>> d07d639026f3a0edd679cf9981cf229ab864ec0b
+
+
+## Forge of Empire
+
+Une guilde de doux dingue dirigée par une valeureuse Dame, tout aussi cinglée formait une bande encore **moins** dingue que la __quantité__ de dinguerie que la programmation l'**exige**
+
+Bref, ça s'appelle parler pour ne **rien dire**
+
+Me demande si le plat de poisson de la cantine est bon... Mais toujours un peu parano avec le poisson, pourtant j'adore..
+
+-------------fin msg bernard
