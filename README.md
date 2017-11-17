@@ -24,5 +24,17 @@ The Invincible Iron Man
 
 *HODOR* **HODOR** HODOR!
 
+
 Je suis aussi passée par là !
 
+# Qui suis-je?
+Je suis:
+ * **bleu** 
+ *avec des petits points rouge 
+ *et des poils dessus
+J'ai: 
+ *une forme bizarroides 
+ *une grande gueule  
+
+Je suis, je suis... http://lolheaven.com/i-have-no-idea-what-i-am-doing-2/
+>>>>>>> d07d639026f3a0edd679cf9981cf229ab864ec0b
